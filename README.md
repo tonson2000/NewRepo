@@ -1,2 +1,2 @@
 # NewRepo
-Hi, my nickname is Tonson.
+Hi, my nickname is Tonson.My firatname Chalasin.
